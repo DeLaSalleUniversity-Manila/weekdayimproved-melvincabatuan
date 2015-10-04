@@ -236,4 +236,4 @@ https://gist.github.com/melvincabatuan/defd8992ecdce9c73d7e
 ![alt tag](https://github.com/DeLaSalleUniversity-Manila/weekdayimproved-melvincabatuan/blob/master/device-2015-10-04-082918.png)
 
 
-"Example teaches better than precept. It is the best modeler of the character of men and women. To set a lofty example is the richest bequest a man can leave behind him." - Samuel Smiles
+"*Example teaches better than precept. It is the best modeler of the character of men and women. To set a lofty example is the richest bequest a man can leave behind him.*" - Samuel Smiles
